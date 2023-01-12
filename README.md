@@ -21,4 +21,4 @@
 
 > i really like anything jazz, bossa nova, rock, pop, or anything chill tbh
 
-(doesn't mean that i don't have some wild songs on my playlist tho 👀)
+(doesn't mean that i don't have some wild songs in my playlists tho 👀)
