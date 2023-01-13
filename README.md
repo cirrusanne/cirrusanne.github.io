@@ -26,12 +26,12 @@
 
 - **i play project sekai, bandori, osu! (not much anymore), and genshin impact !** 🎲
 
-- **my favorite pastime/background noise is watching genshin lore videos, song analysis videos, the channel "Answer in Progress"** 📹
+- **my favorite pastime/background noise is watching genshin lore videos,** 📹
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/r8e6xqxL0h4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
+**song analysis videos,**
 <iframe width="560" height="315" src="https://www.youtube.com/embed/uVAGjfFmFkw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
+**the channel "Answer in Progress"**
 <iframe width="560" height="315" src="https://www.youtube.com/embed/13zqeZdyQiM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 ---
