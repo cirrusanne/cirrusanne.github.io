@@ -8,6 +8,8 @@
 `Honk Shoo / Mimimi`
 : `are onomatopoeias of snoring popularized by television cartoons, particularly in the early and mid-20th century. In the 2020s, the terms became popularized in memes, with many jokes pitting the two against each other and referencing the sound effects from old cartoon shows.`
 
+as you can see, i am more of a cat person /ᐠ .⋏. ᐟ\ﾉ
+
 *good day sir ^^*
 ---
 > ### **fav songs !!**
@@ -24,3 +26,4 @@
 > i really like anything jazz, bossa nova, rock, pop, or anything chill tbh
 
 (doesn't mean that i don't have some wild songs in my playlists tho 👀)
+
