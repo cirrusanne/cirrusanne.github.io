@@ -2,15 +2,34 @@
 *Elisha Anne Rodriguez*
 ### **9 Arrowsmith**
 > ## *honkshoo honkshoo honkimimimimimi*
+
+*good day sir ^^*
 ---
 ![image](https://external-preview.redd.it/nq-QgCQANY2WLPh6s3-rrWGwipp71ajbZ0HpjpHkOqo.png?format=pjpg&auto=webp&s=3b394cd47a51f23e35a6eee090f91d089eb02d4b)
 
 `Honk Shoo / Mimimi`
 : `are onomatopoeias of snoring popularized by television cartoons, particularly in the early and mid-20th century. In the 2020s, the terms became popularized in memes, with many jokes pitting the two against each other and referencing the sound effects from old cartoon shows.`
 
-as you can see, i am more of a cat person /ᐠ .⋏. ᐟ\ﾉ
 
-*good day sir ^^*
+# **about me**
+- **as you can see, i am more of a cat person /ᐠ .⋏. ᐟ\ﾉ**
+
+- **i go by she/they :D**
+
+- **infp (mbti) 🌼**
+
+- **i am a capricorn ♑ (sun sign)**
+
+- **i am a cancer rising ♋**
+
+- **and i am a scorpio moon ♏**
+
+- **i play project sekai, osu! (not much anymore), and genshin impact !**
+
+- **my favorite pastime/background noise is watching genshin lore videos**
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r8e6xqxL0h4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
 ---
 > ### **fav songs !!**
 - [impossible - Wasia Project](https://www.youtube.com/watch?v=9o94oEX3od8)
