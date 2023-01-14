@@ -20,6 +20,8 @@
 
 - **i go by she/they :D**
 
+- **my birthday's on january 4, 2008 🎂**
+
 - **infp (mbti) 🌼**
 
 - **i am a capricorn ♑ (sun sign), cancer rising ♋, and i am a scorpio moon ♏**
