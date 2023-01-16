@@ -60,3 +60,68 @@
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/1dNzL37R70yEMKa8tsoman?utm_source=generator" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/0Pajk5IRjlupkIIeXtANMM?utm_source=generator&theme=0" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+> ### **media that i like**
+- **webtoons !**
+
+### current favs:
+
+*Nice to Meet You*
+
+![nice to meet you](https://bookdragonism.files.wordpress.com/2021/01/img_20210116_001024.jpg)
+
+basically college campus shenanigans but with also real hard emotions
+
+*Lore Olympus*
+
+![lore olympus](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTo_eEvcXXKQd0dsjn-hiNYDmJMjSLvFnscHxGLUNecQ0RP8cUXbL8w4nikiKJAPjZ7cTk&usqp=CAU)
+
+modern twist about hades & persephone, some themes may trigger people
+
+*Not So Shoujo Love Story*
+
+![not so shoujo love story](https://swebtoon-phinf.pstatic.net/20200903_218/1599092998634ALfFy_JPEG/04_EC9E91ED9288EC8381EC84B8_mobile.jpg?type=crop540_540)
+
+heehee girls--funny and lighthearted
+
+*Omniscient Reader's Viewpoint*
+
+![omniscient reader's viewpoint](https://swebtoon-phinf.pstatic.net/20200813_68/1597264242338akqa2_JPEG/04_EC9E91ED9288EC8381EC84B8_mobile.jpg?type=crop540_540)
+
+kind of a reverse isekai, the scenes and how the main character deduces problems are really great
+
+*Daybreak*
+
+![daybreak](https://swebtoon-phinf.pstatic.net/20220903_19/1662153614534bedmR_JPEG/5Daybreak_landingpage_mobile.jpg?type=crop540_540)
+
+i really like the representation, and it's overall cute ^^
+
+*Get Schooled*
+
+![get schooled](https://swebtoon-phinf.pstatic.net/20210504_141/1620085451198JaQAz_JPEG/8GetSchooled_mobile_landingpage.jpg?type=crop540_540)
+
+the embodiment of karma but also gives important values, quite violent
+
+- **anime !**
+
+*Saiki K*
+
+![saiki k](https://animemotivation.com/wp-content/uploads/2021/01/saiki-k-anime-wallpaper.jpg)
+
+*SpyxFamily*
+
+![spyxfamily](https://www.denofgeek.com/wp-content/uploads/2022/04/SPY-x-FAMILY-KV.jpg?resize=768%2C432)
+
+i totally recommend the manga while we're at it
+
+*Haikyuu!!*
+
+![haikyuu](https://i.pinimg.com/originals/21/12/5a/21125a84e88f29a1504afe11ef16e7b5.jpg)
+
+*Sk8 the Infinity*
+
+![sk8 the infinity](https://www.crunchyroll.com/imgsrv/display/thumbnail/480x720/catalog/crunchyroll/3c2a0086d743d1858f98549f798ab85f.jpeg)
+
+*Noragami*
+
+![noragami](https://4.bp.blogspot.com/-BkiCYkzSxgk/V6IX0OerS3I/AAAAAAAABno/aNsDYDROZncWwnf62uoSNaxkjH0qesHQgCLcB/s1600/title7.jpg)
