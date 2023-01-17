@@ -74,7 +74,7 @@ basically college campus shenanigans but with also real hard emotions
 
 *Lore Olympus*
 
-![lore olympus](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTo_eEvcXXKQd0dsjn-hiNYDmJMjSLvFnscHxGLUNecQ0RP8cUXbL8w4nikiKJAPjZ7cTk&usqp=CAU)
+![lore olympus](http://pm1.narvii.com/7110/c9cc8fd87841e153c883b5041de5238c4c58be67r1-563-563v2_uhq.jpg)
 
 modern twist about hades & persephone, some themes may trigger people
 
